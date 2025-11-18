@@ -1,1 +1,0 @@
-# Chepkwony-Heman-Kiprotich-_-Structured-Programming
